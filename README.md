@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Danok01
+- 👀 I’m interested in working as a verified Data Engineer🌴
+- 🌱 I’m currently learning AWS
+- 💞️ I’m looking to collaborate on Big Data Projects
+- 📫 How to reach me WhatsApp; 07067235772, and i would also love to connect with mentors whom are ready to work with an enthusiastic and zealous student💝
